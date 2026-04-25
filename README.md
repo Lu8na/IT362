@@ -9,7 +9,7 @@ Aljoury Alreemi	  445200074
 
 Khadijah Alshehri	445202138
 
-Supervised by: Lama Alsudias
+Supervised by: DR.Lama Alsudias
 
 
 
